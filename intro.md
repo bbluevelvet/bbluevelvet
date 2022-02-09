@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @bbluevelvet
 - 👀 I’m interested in photography and 3D Design
 - 🌱 I’m currently learning basic skills in Coding
-- 💞️ I’m looking to collaborate on I don't know if I have any skills to over as collaborateur
+- 💞️ I’m looking to collaborate on I don't know if I have any skills to qualify as collaborateur
 - 📫 How to reach me hm, what is common to put on here? 
 
 <!---
